@@ -2,4 +2,4 @@
 
 i'm noahrider, little guy, big stuff coming
 
-www.noahrider.com
+https://www.noahrider.com
